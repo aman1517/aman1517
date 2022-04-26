@@ -6,7 +6,7 @@
 
 - 👨‍💻 All of my projects are available at [https://app.netlify.com/teams/aman1517/sites](https://app.netlify.com/teams/aman1517/sites)
 
-- 💬 Ask me about **Mearn**
+- 💬 Ask me about **Mern**
 
 - 📫 How to reach me **vermaman3@gmail.com**
 
