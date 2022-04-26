@@ -12,7 +12,7 @@
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/1G_IuOpTICTrSzCVV2W-y9BblUA0sL86o4cMX8LLvDbI/edit](https://docs.google.com/document/d/1G_IuOpTICTrSzCVV2W-y9BblUA0sL86o4cMX8LLvDbI/edit)
 
-- ⚡ Fun fact **I am Quciq learner**
+- ⚡ Fun fact **I am funny **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
