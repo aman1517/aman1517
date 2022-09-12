@@ -1,4 +1,5 @@
 <h1 align="center">Hi 👋, I'm Aman Verma</h1>
+<p> Hard-working individual with proficiency in HTML, JavaScript ,Node.js  and CSS  as well as ability to communicate effectively in a team setting  and possessing a strong willingness to learn  new technology. Seeks to apply for the position of  Full Stack Developer.</p>
 <h3 align="center">A passionate full Stack-Web developer from India</h3>
 <img align="right" alt="coding" width="400" src="https://c.tenor.com/Ug6cbVA1ZsMAAAAd/developer.gif"/>
 
