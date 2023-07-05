@@ -11,7 +11,8 @@
 
 - 📫 How to reach me **vermaman3@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1mY0y8h7hUPM31dHgVWMP2asWa8P1INiw/view?usp=sharing](https://drive.google.com/file/d/1mY0y8h7hUPM31dHgVWMP2asWa8P1INiw/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1mY0y8h7hUPM31dHgVWMP2asWa8P1INiw/view?usp=sharing](https://drive.google.com/file/d/14yN27H41V-3MM_1uRIX-oJZA8hgVr_it/view?usp=sharing)]
+
 
 - ⚡ Fun fact **I am funny **
 
